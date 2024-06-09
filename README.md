@@ -7,5 +7,5 @@
 💬 Ask me about Tableau, Power BI, Python, R and SQL - I am not afraid of being incorrect. All part of learning. 
 📫 How to reach me: qumfc2020@gmail.com
 😄 Pronouns: He/Him
-⚡ Fun fact: Work hard. Play harder
+⚡ Fun fact: Work hard. Play harder - broke my collarbone playing squash :) 
 
